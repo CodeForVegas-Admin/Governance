@@ -16,6 +16,8 @@ Organization structure documents and related information for operation and state
 
 <https://alliancefornevadanonprofits.com/wp-content/uploads/2015/09/ANN-Amended-Bylaws-2014.pdf>
 
+<https://donorbox.org/nonprofit-blog/form-1023-ez-for-nonprofits>
+
 ### Free Fill-in Templates
 
 <https://www.formslaw.com/non-profit-bylaws/>
